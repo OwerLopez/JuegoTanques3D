@@ -18,4 +18,4 @@
 3. Press ▶ Play.
 
 ---
-**Ower Frank Lopez Arela** — [Portfolio](https://owerlopez.dev) · [LinkedIn](https://linkedin.com/in/ower-frank-lopez-arela-29558a285)
+**Ower Frank Lopez Arela** — [Portfolio](https://owerlopez.dev) · [LinkedIn](https://www.linkedin.com/in/owerfrank-data/)
